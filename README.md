@@ -1,12 +1,12 @@
 <img width="967" height="967" alt="ZBrush 2026 1 1" src="https://github.com/user-attachments/assets/3b268bf3-0e36-424d-b0f3-3e20efa93845" />
 
-Torrent download link :
-
-https://www.shopcom.tn/product/zbrush-2026-1-1/torrent-download
-
 Download link :
 
 https://www.shopcom.tn/product/zbrush-2026-1-1/download
+
+Torrent download link :
+
+https://www.shopcom.tn/product/zbrush-2026-1-1/torrent-download
 
 Purchase link :
 
