@@ -14,6 +14,12 @@ https://www.shopcom.tn/product/zbrush-2026-1-1/
 
 Product Price : 1,030 $
 
+Payment :
+https://www.shopcom.tn/payment
+
+Website :
+https://www.shopcom.tn
+
 Description :
 An Overview of ZBrush 2026.1.1
 Pixologic Maxon ZBrush 2026.1.1 is a maintenance release for the renowned digital sculpting and painting software, now developed and distributed by Maxon following its acquisition of Pixologic. Positioned as a stable and refined iteration following the major feature introduction of ZBrush 2026.0, this version focuses on consolidating recent advancements, improving workflow consistency, and fixing bugs to ensure a reliable and efficient creative experience for digital artists across film, game development, illustration, and design industries.
